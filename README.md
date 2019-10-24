@@ -1,0 +1,2 @@
+# girlsquad
+resolusi masa depan 
